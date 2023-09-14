@@ -101,15 +101,15 @@
 <details>
 <summary>sᴀᴍᴘʟᴇ ʙᴏᴛ✨</summary>
 <i> ᴀʟʟ ᴛʜᴇ ᴄᴜsᴛᴏᴍɪsᴀᴛɪᴏɴs ʟɪᴋᴇ ᴅɪғғᴇʀᴇɴᴛ sᴛᴀʀᴛ ɪᴍᴀɢᴇs ᴀɴᴅ ᴅɪғғᴇʀᴇɴᴛ sᴛɪᴄᴋᴇʀs ᴀʀᴇ ᴀᴠᴀɪʟᴀʙʟᴇ. ᴢᴅᴛ ᴄʜᴇᴀᴋ ᴛʜᴇ ᴠᴀʀs ᴀɴᴅ ғᴏʀᴋ ᴛʜᴇ ʀᴇᴘᴏsɪᴛᴏʀʏ.</i>
-<p align="center"><a href="https://t.me/Nothing_ChatGpt_bot"> <img src="https://img.shields.io/badge/Sample%20Bot-pink?style=for-the-badge" width="220" height="38.45"/></a></p>
+<p align="center"><a href="https://t.me/Udaan_2024_batch_physics_wallahh"> <img src="https://img.shields.io/badge/Sample%20Bot-pink?style=for-the-badge" width="220" height="38.45"/></a></p>
 </details>
 
 
 ### sᴜᴘᴘᴏʀᴛ 
 
-<p align="center"><a href="https://t.me/Nothingbots"> <img src="https://img.shields.io/badge/SUPPORT-black?style=for-the-badge" width="220" height="38.45"/></a></p>
+<p align="center"><a href="https://t.me/Udaan_2024_batch_physics_wallahh"> <img src="https://img.shields.io/badge/SUPPORT-black?style=for-the-badge" width="220" height="38.45"/></a></p>
 
-<p align="center"><a href="https://t.me/Nothingbotz"> <img src="https://img.shields.io/badge/Nᴏᴛʜɪɴɢ%20ʙᴏᴛ ᴢᴏɴᴇ-blue?style=for-the-badge" width="220" height="38.45"/></a></p>
+<p align="center"><a href="https://t.me/Udaan_2024_batch_physics_wallahh"> <img src="https://img.shields.io/badge/Nᴏᴛʜɪɴɢ%20ʙᴏᴛ ᴢᴏɴᴇ-blue?style=for-the-badge" width="220" height="38.45"/></a></p>
 
 
 ### ᴄʀᴇᴅɪᴛs 
